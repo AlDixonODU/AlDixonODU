@@ -1,4 +1,4 @@
-### Hi there! My Name is Al 👋
+### (👍≖‿‿≖)👍 Hi there! My Name is Al 👍(≖‿‿≖👍)
 
 <a href="">
   <img align="left" alt="My LinkdeIn" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />
